@@ -1,2 +1,0 @@
-# AYUSH-DWN
-Page loder
